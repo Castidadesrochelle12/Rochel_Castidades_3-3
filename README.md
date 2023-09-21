@@ -1,1 +1,6 @@
-# Rochel_Castidades_3-3
+# Group
+## Rochelle Castidades
+## Julie Listana
+## Aira Godalle
+## John Junelson Baluyot
+## Allyssa Luma
