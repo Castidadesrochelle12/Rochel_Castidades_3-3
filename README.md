@@ -3,5 +3,5 @@
 ## Julie Listana
 ## Aira Godalle
 ## John Junelson Baluyot
-## Allyssa Luma
+## Allyssa joy Luma
 ## julius ceasar enciso
